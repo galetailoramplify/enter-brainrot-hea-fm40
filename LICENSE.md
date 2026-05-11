@@ -1,4 +1,4 @@
-#  
+#  driving empire Script advanced is the best driving empire Script, featuring infinite resources and invisibility. Safe and powerful for all your needs.
 
 
 
